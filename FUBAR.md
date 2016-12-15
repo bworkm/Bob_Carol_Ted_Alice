@@ -17,3 +17,4 @@
 <p> We are ready to go home</p>
 #Life is short and hard, like a bodybuilding elf.
 
+<p> Bob and Alice will host Ted and Carol for the swinger party</p> 
